@@ -1,5 +1,5 @@
 <div align="center">
-<img width="100%" alt="desktop-oil-painting" src="https://github.com/user-attachments/assets/f1c7926a-9b67-43b7-bbad-9908bfaada16">
+<img width="100%" alt="desktop-oil-painting" src="https://github.com/user-attachments/assets/d734c549-b900-4976-838d-c57263396466">
 </div>
 
 <h1 align="center">Surya Maddula</h1>
