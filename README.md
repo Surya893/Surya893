@@ -4,4 +4,4 @@
 
 <h1 align="center">Surya Maddula</h1>
 
-[Find me on LinkedIn](https://www.linkedin.com/in/suryaseshamaddula/), Check out my website https://suryamaddula.com/, Send an email [surya@whisperwave.in](mailto:surya@whisperwave.in), [DM me on twitter](https://x.com/suryamaddula_). Always happy to talk!
+[Find me on LinkedIn](https://www.linkedin.com/in/suryaseshamaddula/), [Check out my website](https://suryamaddula.com/), Send an email [surya@whisperwave.in](mailto:surya@whisperwave.in), [DM me on twitter](https://x.com/suryamaddula_). Always happy to talk!
