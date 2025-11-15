@@ -1,7 +1,9 @@
-<div align="center">
-<img width="100%" alt="desktop-oil-painting" src="https://github.com/user-attachments/assets/0f24cf70-b4e8-4b9e-9118-1e3d87243726">
-</div>
+  ![](https://komarev.com/ghpvc/?username=Surya893)
 
-<h1 align="center">Surya Maddula</h1>
+• building active noise cancellation systems at [whisperwave](www.whisperwave.in)
 
-[Find me on LinkedIn](https://www.linkedin.com/in/suryaseshamaddula/), [Check out my website](https://suryamaddula.com/), Send an email [surya@whisperwave.in](mailto:surya@whisperwave.in), [DM me on twitter](https://x.com/suryamaddula_). Always happy to talk!
+• [Find me on LinkedIn](https://www.linkedin.com/in/suryaseshamaddula/), [Website](https://suryamaddula.com/)
+
+shoot queries [surya.maddula@outlook.com](mailto:surya.maddula@outlook.com)
+
+socials: [twitter](https://x.com/suryamaddula_) [linkedin](https://linkedin.com/in/suryaseshamaddula)
