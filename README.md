@@ -2,8 +2,8 @@
 
 • building active noise cancellation systems at [whisperwave](www.whisperwave.in)
 
-• [Find me on LinkedIn](https://www.linkedin.com/in/suryaseshamaddula/), [Website](https://suryamaddula.com/)
+• [find me on LinkedIn](https://www.linkedin.com/in/suryaseshamaddula/)
 
 shoot queries [surya.maddula@outlook.com](mailto:surya.maddula@outlook.com)
 
-socials: [twitter](https://x.com/suryamaddula_) [linkedin](https://linkedin.com/in/suryaseshamaddula)
+socials: [twitter](https://x.com/suryamaddula_) [website](https://suryamaddula.com/)
