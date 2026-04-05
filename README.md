@@ -1,6 +1,6 @@
   ![](https://komarev.com/ghpvc/?username=Surya893)
 
-• building active noise cancellation systems at [whisperwave](www.whisperwave.in)
+• building active noise cancellation systems at [whisperwave.in](www.whisperwave.in)
 
 • [find me on LinkedIn](https://www.linkedin.com/in/suryaseshamaddula/)
 
