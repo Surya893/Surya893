@@ -4,6 +4,6 @@
 
 • [find me on LinkedIn](https://www.linkedin.com/in/suryaseshamaddula/)
 
-shoot queries [surya.maddula@outlook.com](mailto:surya.maddula@outlook.com)
+shoot queries [me@suryamaddula.com](mailto:me@suryamaddula.com)
 
 socials: [twitter](https://x.com/suryamaddula_) [website](https://suryamaddula.com/)
